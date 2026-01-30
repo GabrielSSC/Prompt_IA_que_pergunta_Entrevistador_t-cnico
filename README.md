@@ -1,0 +1,1 @@
+# Prompt_IA_que_pergunta_Entrevistador_t-cnico
